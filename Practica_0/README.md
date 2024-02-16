@@ -1,3 +1,3 @@
-# TITULO
+# FRASES SPR KBRONAS
 
-el mundo no es de quien se levanta mas temprano, sino de quien se levanta mas feliz
+amigos falsos te la clavan por detras -Fernando Haro
