@@ -1,3 +1,3 @@
-# TITULO
+# Frases kbronas
 
-el mundo no es de quien se levanta mas temprano, sino de quien se levanta mas feliz
+"De hecho hay un algoritmo que lo explica".
